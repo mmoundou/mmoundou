@@ -4,4 +4,4 @@ I'm Matthieu; welcome by! This profile is an opportunity for me to track my proj
 
 Take care in the meantime, talk soon
 
-[*Contact*](matthieumoundou@hotmail.com)
+[*Contact*](mailto:matthieumoundou@hotmail.com)
