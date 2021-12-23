@@ -1,8 +1,8 @@
 Hello
 
-I'm Matthieu; welcome by! This profile is an opportunity for me to interact with the community. I am mainly interested in software interfacing, but would not mind discussing travel, books, and music as well 😄  
+I'm Matthieu; welcome by! This profile is an opportunity for me to interact with the community. I am mainly interested in software interfacing, but would not mind discussing books, and music as well 😄  
 
-Looking forward to chatting soon. Take care until then.
+Looking forward to chatting. Take care until then.
 
 
 
